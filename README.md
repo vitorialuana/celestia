@@ -2,5 +2,5 @@
 
 - ela/dela ele/dele
 - Estudante/Ensino Médio
-- Gosto de astronomia e estudar
+- Gosto de astronomia
 - Paraná
