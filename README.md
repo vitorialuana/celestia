@@ -7,4 +7,4 @@
 - Colégio Maluf
 - Gosto de jogar jogos como Genshin Impact, Minecraft, Sky children of the light etc.
 
-Minhas outras redes sociais são privadas.
+ Não posto nada em outras redes sociais.
