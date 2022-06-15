@@ -1,10 +1,10 @@
 # Olá, Bem vindo! ![image](https://user-images.githubusercontent.com/106687341/173865433-b1a282ce-99c3-4e30-9fdd-2d38a591f35d.png)
 
-- Vitória - ela/dela
-- Estudante/Ensino Médio
-- Gosto de astronomia e desenhar
-- Brasil / Paraná
-- Colégio Maluf
-- Gosto de jogar jogos como Genshin Impact, Minecraft, Sky children of the light etc.
+ ᴠɪᴛᴏʀɪᴀ - ᴇʟᴀ/ᴅᴇʟᴀ
+ - ᴇsᴛᴜᴅᴀɴᴛᴇ/ᴇɴsɪɴᴏ ᴍᴇᴅɪᴏ
+ - ɢᴏsᴛᴏ ᴅᴇ ᴀsᴛʀᴏɴᴏᴍɪᴀ ᴇ ᴅᴇsᴇɴʜᴀʀ
+ - ʙʀᴀsɪʟ / ᴘᴀʀᴀɴᴀ
+ - ᴄᴏʟᴇɢɪᴏ ᴍᴀʟᴜғ
+ - ɢᴏsᴛᴏ ᴅᴇ ᴊᴏɢᴀʀ ᴊᴏɢᴏs ᴄᴏᴍᴏ ɢᴇɴsʜɪɴ ɪᴍᴘᴀᴄᴛ, ᴍɪɴᴇᴄʀᴀғᴛ, sᴋʏ ᴄʜɪʟᴅʀᴇɴ ᴏғ ᴛʜᴇ ʟɪɢʜᴛ ᴇᴛᴄ. 
 
- Não posto nada em outras redes sociais.
+ ɴᴀᴏ ᴘᴏsᴛᴏ ɴᴀᴅᴀ ᴇᴍ ᴏᴜᴛʀᴀs ʀᴇᴅᴇs sᴏᴄɪᴀɪs.
