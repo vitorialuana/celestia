@@ -3,7 +3,7 @@
 - Vitória - ela/dela
 - Estudante/Ensino Médio
 - Gosto de astronomia e desenhar
-- Paraná
+- Brasil / Paraná
 - Colégio Maluf
 - Gosto de jogar jogos como Genshin Impact, Minecraft, Sky children of the light etc.
 
