@@ -9,4 +9,5 @@
 
  ɴᴀᴏ ᴘᴏsᴛᴏ ɴᴀᴅᴀ ᴇᴍ ᴏᴜᴛʀᴀs ʀᴇᴅᴇs sᴏᴄɪᴀɪs.
  
-![image](https://user-images.githubusercontent.com/106687341/176896644-b122fac3-ee8a-4c04-b07c-cdaf6515ac96.png)
+![image](https://user-images.githubusercontent.com/106687341/176896644-b122fac3-ee8a-4c04-b07c-cdaf6515ac96.png) ![image](https://user-images.githubusercontent.com/106687341/176896794-28fb443a-6074-45f8-9a51-3aa47cc8f441.png)
+
